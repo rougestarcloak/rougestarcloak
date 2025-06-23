@@ -1,16 +1,28 @@
-## Hi there 👋
 
-<!--
-**rougestarcloak/rougestarcloak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![pony-town-🍬🌈 _ YIPPEE !! _ 🍭🎉-laugh-blinking-padded-toy158-4x](https://github.com/user-attachments/assets/31c51a2c-b8c0-48fa-825d-e59a6fe68a93)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+─── ⋆⋅☆⋅⋆ ───
+
+[ hi there !! ]
+
+i'm mars or prince u can call me princey :D !! 👑
+
+  they it he pup star she
+
+˗ˋˏ eng/malay . enfp . 18 . 
+w2i c+h . undertale / mlp / mcyt areas ˎˊ-
+
+
+want to ...
+
+  - see me ? my timezone is utc+8 , and i'm usually playing at night 🌃
+  
+   - roleplay ? yes ! i like light-hearted silly roleplays 🐕
+    
+   - hang out ? sure !! my socials are linked in my [@carrd](https://marsywarsy.carrd.co/) 🎊
+
+─── ⋆⋅☆⋅⋆ ───
+
+![pony-town-that frickin dog that i hate-boop-sit-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/16a89f0e-33ea-42fc-b643-ac4c993ddb56)
+
