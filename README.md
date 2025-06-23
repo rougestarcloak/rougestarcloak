@@ -7,8 +7,7 @@
 [ hi there !! ]
 
 i'm mars or prince u can call me princey :D !! 👑
-
-  they it he pup star she
+i'm an artist from malaysia
 
 ˗ˋˏ eng/malay . enfp . 18 . 
 w2i c+h . undertale / mlp / mcyt areas ˎˊ-
