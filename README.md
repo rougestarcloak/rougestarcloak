@@ -25,3 +25,4 @@ want to ...
 
 ![pony-town-that frickin dog that i hate-boop-sit-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/16a89f0e-33ea-42fc-b643-ac4c993ddb56)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=52g6ya2avnvu5g1t22ow3wks1&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=a6002e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=52g6ya2avnvu5g1t22ow3wks1&redirect=true)
