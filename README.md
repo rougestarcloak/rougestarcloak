@@ -19,6 +19,9 @@ want to ...
   - see me ? my timezone is utc+8 , and i play on the weekends 🌃
   
    - roleplay ? yes ! i like light-hearted silly roleplays 🐕
+
+   - befriend me ? i don't accept random friend reqs , especially in the mlp safe area .
+      ask me first ! and i apologize if i say no
     
    - hang out ? sure !! my socials are linked in my [@carrd](https://marsywarsy.carrd.co/) 🎊
 
