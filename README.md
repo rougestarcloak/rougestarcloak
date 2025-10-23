@@ -26,6 +26,8 @@ want to ...
 
   ─── ⋆⋅☆⋅⋆ ───
 
+  ![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=rougestarcloak.rougestarcloak&left_color=maroon&right_color=black&left_text=esteemed%20guests)
+
 ![pony-town-🌹☀ princey !! 👑💗-boop-padded-toy176-4x](https://github.com/user-attachments/assets/06c8c9de-3c58-4c29-b1c6-793284a87ea0) (that's me !!)
 
 
