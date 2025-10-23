@@ -11,17 +11,16 @@ i'm mars or prince u can call me princey :D !! 👑
 i'm an artist from malaysia
 
 ˗ˋˏ eng/malay . enfp . 18 . 
-w2i c+h . undertale / mlp / date everything (18+) areas ˎˊ-
+w2i c+h . undertale / mlp / docks ˎˊ-
 
 
 want to ...
 
   - see me ? my timezone is utc+8 , and i play on the weekends 🌃
   
-   - roleplay ? yes ! i like light-hearted silly roleplays 🐕
+   - roleplay ? yes ! i like rping casually on public maps , and school + royal roleplays on the island map 🐕
 
-   - befriend me ? i don't accept random friend reqs , especially in the mlp safe area .
-      ask me first ! and i apologize if i say no
+   - befriend me ? i don't accept random friend reqs , especially in the mlp safe area . do ask first ! 
     
    - hang out ? sure !! my socials are linked in my [@carrd](https://marsywarsy.carrd.co/) 🎊
 
