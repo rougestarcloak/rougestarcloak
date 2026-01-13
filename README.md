@@ -10,15 +10,17 @@
 i'm mars or prince u can call me princey :D !! 👑
 i'm an artist from malaysia
 
-˗ˋˏ eng/malay . enfp . 18 . 
-w2i c+h . undertale / mlp / docks ˎˊ-
+˗ˋˏ eng/malay . enfp . 18 . they it he pup star she
 
+w2i c+h . undertale / mlp / docks ˎˊ-  
 
 want to ...
 
   - see me ? my timezone is utc+8 , and i play on the weekends 🌃
   
-   - roleplay ? yes ! i like rping casually on public maps , and school + royal roleplays on the island map 🐕
+   - roleplay ? yes ! i like labs , school and kingdom roleplays on the island map 🐕
+   
+   ( i play as athena the tree in labs - and as the prince in kingdoms )
 
    - befriend me ? i don't accept random friend reqs , especially in the mlp safe area . do ask first ! 
     
